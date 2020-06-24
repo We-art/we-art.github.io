@@ -9,3 +9,6 @@ Gordon Shumway vom Planeten Melmac landet mit seinem Raumschiff in der Garage de
 * Lucky Katze
 * Kommt von einem Katzen Stern
 * Hat mehrere Mägen
+
+ALF sagt:
+> Null Problemo
