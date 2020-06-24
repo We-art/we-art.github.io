@@ -1,1 +1,3 @@
 # Bekannt aus den 80ern - ALF
+
+Gordon Shumway vom Planeten Melmac landet mit seinem Raumschiff in der Garage der Vorstadtfamilie Tanner. Anfangs stehen ihm Vater Willie (Max Wright), Mutter Kate (Anne Schedeen) und die Kinder Lynn (Andrea Elson) und Brian (Benji Gregory) skeptisch gegenüber. Doch mit der Zeit schließen sie den chaotischen Alien in ihre Herzen, obwohl sein Leibgericht Katzen sind, was Familienkater Lucky in ständige Gefahr bringt. Außerdem müssen die Tanners „ALF“ (steht für „alien life form“ bzw. „außerirdische Lebens-Form“) vor Nachbarn und Freunden verstecken, damit die Weltraumbehörde ihm nicht auf die Spur kommt.
